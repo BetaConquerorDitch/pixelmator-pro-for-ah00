@@ -1,4 +1,4 @@
-
+Get the ultimate Pixelmator Pro for macOS plugin with elite Pixelmator Pro for macOS Plugin | real-time preview + smart objects. Featuring real-time preview and smart objects,
 
 
 
